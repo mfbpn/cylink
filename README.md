@@ -1,6 +1,6 @@
 # 次元链接机场官网地址
 
-最新地址：[cylink.blog](https://cylink.blog/auth/register?code=IpXv)
+最新地址：[cylink.blog](https://次元.net/auth/register?code=SfFj)
 
 ## 次元链接机场介绍
 
